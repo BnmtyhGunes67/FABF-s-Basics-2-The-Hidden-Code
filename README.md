@@ -23,6 +23,6 @@ JACKNJELLIFY - BATTLE FOR BFDI
 AND YOU FOR PLAYING THIS MOD!
 
 All Downloads
-FABF's Basics 2 The Hidden Code Mod Menu v1.11.1.zip
-FABF's Basics 2 The Hidden Code Mod Menu v1.12.1.zip
-FABF's Basics 2 The Hidden Code Mod Menu v1.13.zip
+FABF's Basics 2 The Hidden Code Mod Menu v1.11.1.zip 156 KB
+FABF's Basics 2 The Hidden Code Mod Menu v1.12.1.zip 157 KB
+FABF's Basics 2 The Hidden Code Mod Menu v1.13.zip 191 KB
